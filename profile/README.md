@@ -1,0 +1,1 @@
+![Avixy Group](cover.jpg)
